@@ -1,4 +1,4 @@
-##Wir lernen Chinesisch!
+## Wir lernen Chinesisch!
 
 Herzlich Willkommen!
 热烈欢迎
@@ -16,7 +16,7 @@ __Methode:__ Wir werden intensiv miteinander sprechen. Der Lehrgang ist individu
 Lernmaterial wird während des Kurses zur Verfügung gestellt.
 
 
-####Termin Möglichkeiten:
+#### Termin Möglichkeiten:
 
 Mo.- Mi. 20:30-22:00 
 
