@@ -1,0 +1,5 @@
+##Chinesische Tischmanieren
+
+__Niemals__ die Essstäbchen in den Reis hineinstecken, so dass sie stehen bleiben. Ein Stäbchen wird nur bei einer Beerdigung in den Reis hineingesteckt, und ist ein Symbol für den Toten. Dies beim Essen zu tun würde also mehr als unpassend sein und (was viel schlimmer ist) ein böses Ohmen darstellen. Die Essstäbchen sollten immer neben den Teller gelegt werden, so dass die Griffseite auf dem Tisch aufliegt, und die Mundseite auf einem der Schälchen oder dem Knochenteller. Oft gibt es für die Essstäbchen auch extra ein kleines Porzelan-Bänkchen, auf das die Mundseite gelegt werden kann.
+
+__Niemals__ bei Tisch die Nase schnäuzen, sich die "Ausbeute" betrachten und das gebrauchte Taschentuch wieder in die Hose hineinstopfen. Man sollte sich bei Tisch überhaupt nicht die Nase schnäuzen. Man geht in China zum Nase putzen auf die Toilette.
